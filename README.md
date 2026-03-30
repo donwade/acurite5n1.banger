@@ -1,2 +1,2 @@
 # acurite5n1.banger
-wx station using old big bang
+wx station using old big banging
